@@ -1,1 +1,1 @@
-# les-minis-chefs
+# Les minis Chefs
